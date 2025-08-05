@@ -1,4 +1,4 @@
 # Day 1
 ## Date:31-july-2025
 # " ਵਾਹਿਗੁਰੂ ਨਾਮ ਜਹਾਜ਼ ਹੈ ਚੜੇ ਸੋ ਉਤਰੇ ਪਾਰ।। "
-! {img}(Screenshot_2025-08-01-21-38-18-12_6012fa4d4ddec268fc5c7112cbb265e7.jpg)
+! [img](Screenshot_2025-08-01-21-38-18-12_6012fa4d4ddec268fc5c7112cbb265e7.jpg)
