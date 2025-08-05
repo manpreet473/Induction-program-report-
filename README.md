@@ -1,4 +1,10 @@
-# Day 1
-## Date:31-july-2025
+#Name: Manpreet Kaur
+#Father's Name: Lakhvir Singh 
+#Branch:CSE
+#Registration no.:25105127
+#Mobile number:8437470739
+#Email I'D:lakhvirsingh529@gmail.com
+#photograph:
+# Day 1(31st-July-2025)
 # " ਵਾਹਿਗੁਰੂ ਨਾਮ ਜਹਾਜ਼ ਹੈ ਚੜੇ ਸੋ ਉਤਰੇ ਪਾਰ।। "
-![img](Screenshot_2025-08-01-21-38-1812_6012fa4d4ddec268fc5c7112cbb265e7.jpg)
+
