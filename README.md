@@ -5,6 +5,7 @@
 ## Mobile number:8437470739
 ## Email:lakhvirsingh529@gmail.com
 ## photograph:
+![manpret](Screenshot_2025-08-01-21-38-18-12_6012fa4d4ddec268fc5c7112cbb265e7.jpg)
 # Day 1(31st-July-2025)
 ## " ਵਾਹਿਗੁਰੂ ਨਾਮ ਜਹਾਜ਼ ਹੈ ਚੜੇ ਸੋ ਉਤਰੇ ਪਾਰ।। "
 ### My first day, starting of a four years journey may it was obviously should started from ardass!
